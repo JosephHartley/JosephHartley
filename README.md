@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **React**
 
-- 👯 I’m looking to collaborate on **HoodRun**, an app I'd like to build for collecting human-made running routes you can follow when travelling to new places. Give me a shout if you're into `running && coding`.
+- 👯 I’m looking to collaborate on **HoodRun**, an app I'd like to build for collecting interesting and reliable running routes, created by runners, that you can follow when travelling to new places. Give me a shout if you're into `running && coding`
 
 - 📫 Reach me on **joejohnhartley@gmail.com**
 
