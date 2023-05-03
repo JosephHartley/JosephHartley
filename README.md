@@ -10,9 +10,9 @@
 
 - 👯 I’m looking to collaborate on **HoodRun**, an app I'd like to build for collecting interesting and reliable running routes, created by runners, that you can follow when travelling to new places. Give me a shout if you're into `running && coding`
 
-- 📫 Reach me on **joejohnhartley@gmail.com**
+- 📫 Reach me on **joejohnhartley@gmail.com** 
 
-- 📄 Know more about my work experience in my [CV](https://www.canva.com/design/DAFesfZl0Ig/FxdZ7YdufCnaXNRpo2tqJg/view?utm_content=DAFesfZl0Ig&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know more about my work experience in my [CV](https://www.canva.com/design/DAFesfZl0Ig/pZ218xkVr82aI6vmLlnZwQ/view?utm_content=DAFesfZl0Ig&utm_campaign=designshare&utm_medium=link&utm_source=viewer)
   
 - 🔗 Connect with me on the ole [LinkedIn](https://www.linkedin.com/in/joejohnhartley/)
 
