@@ -12,7 +12,7 @@
 
 - 📫 Reach me on **joejohnhartley@gmail.com** 
 
-- 📄 Know more about my work experience from my [CV](https://www.canva.com/design/DAFesfZl0Ig/pZ218xkVr82aI6vmLlnZwQ/view?utm_content=DAFesfZl0Ig&utm_campaign=designshare&utm_medium=link&utm_source=viewer)
+- 📄 Know more about my work experience from my [CV](https://www.canva.com/design/DAF46SphBhw/yd02Gu1qYbe5jOAk3gLNrg/view?utm_content=DAF46SphBhw&utm_campaign=designshare&utm_medium=link&utm_source=editor)
   
 - 🔗 Connect with me on the ole [LinkedIn](https://www.linkedin.com/in/joejohnhartley/)
 
